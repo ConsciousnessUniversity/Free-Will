@@ -1,0 +1,1 @@
+- [Strong Emergence Explained - Why Determinism DOES NOT Disprove Free Will](https://youtu.be/xefPrvhdKgc)
